@@ -1,0 +1,3 @@
+# TUGAS DISKRIT
+NAMA : irvan wahyudin
+NIM : 312510359
